@@ -20,10 +20,20 @@ perch on the container, in front of the lounge, and he has been known to pop up
 in Deep Playa for a sunrise set. If you approach him like a dinosaur, he accepts
 selfies.
 
+![Picture of Freddy the Green Dinosaur on the container](/docs/assets/images/cosmicgiggle_freddy.jpg)
+
+## Spermy
+
+We have the brightest cutest whale mutant art vehicle that loves to meet and
+pickup future friends.
+
+![Picture of Spermy the whale mutant art car](/docs/assets/images/spermy.jpg)
 
 ## Cosmic Giggle Gym
 
 Often touted as the best gym on the playa. Gym equipment including free weights, bench press, inverter, and "sexerciser" will be available for all passers-by to get their pump on.
+
+![Picture of gym in the mud](/docs/assets/images/mud_gym.jpg)
 
 ## Cosmic Croquet
 
@@ -31,12 +41,16 @@ Our fun-for-all-ages croquet will be set up for play day and night! The balls
 and mallets are covered in light reactive paint and glow at night. Our wickets
 are synced and illuminated with programmable LEDs.
 
+![Picture of crochet game setup](/docs/assets/images/crochet.jpg)
+
 ## Giggle Oasis
 
 Our newest structure is an inviting space for a respite from the sun and perfect
 for a snooze. Decorated with pillows and mattresses, the Giggle Oasis has hosted
 many a neighbor and passerby. At night it is illuminated, and features
 projections of sunsets on its walls.
+
+![Picture of bundt cake at night](/docs/assets/images/gugelhupf_night.jpeg)
 
 ## Cosmic Giggle porch
 
@@ -49,13 +63,6 @@ pole). On cold nights, we have a burn barrel to further lure folks in and keep
 'em warm. Overall, we’d bill this as our space for spontaneous mingling,
 dancing, and lounging. If the vibes right, we might just create a party for you!
 
-## Spermy
-
-We have the brightest cutest whale mutant art vehicle that loves to meet and
-pickup future friends.
-
-
-
 ## And our interactivities include close and personal offerings such as
 
 * Dehydration/Rehydration Station
@@ -67,7 +74,6 @@ train or want to build a bigger buzz off your work-out, we will throw in a shot
 of vodka or whisky. Depending on the bartender's mood, you may need to earn that
 shot with a spin of our activity wheel and completion of whichever
 exercise/dance/silly activity it lands on.
-
 
 * Classes from the Giggleverse
 
